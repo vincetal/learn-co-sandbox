@@ -1,3 +1,4 @@
+Ok. Red it on Thursday, October, 17 th
 
 Hi! 👋
 
